@@ -10,6 +10,5 @@
 
 🔗 LinkedIn: linkedin.com/in/asaridhrumit
 
-😄 Pronouns: he/him
 
 ⚡ Fun fact: I love decoding hidden messages in old mystery novels and applying steganography IRL!
